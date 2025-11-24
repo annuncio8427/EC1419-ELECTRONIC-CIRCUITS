@@ -13,7 +13,7 @@
 <img width="592" height="645" alt="image" src="https://github.com/user-attachments/assets/4946746e-b580-46e5-b577-5780890576ea" />
 
 
-## Clculation
+## Calculation
 ![WhatsApp Image 2025-11-23 at 11 54 25_26c6a7ba](https://github.com/user-attachments/assets/b0fe3337-c4a6-465f-9886-98b68e3bdc60)
 
 
